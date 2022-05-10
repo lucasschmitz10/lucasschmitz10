@@ -1,4 +1,4 @@
-🙋🏻‍♂️Ola, Eu sou o lucas Schmitz. 
+🙋🏻‍♂️Ola, Eu sou  lucas Schmitz. 
 
 💻 Estudande de Análise e Desevolvimento de Sistemas|Ulbra
 
