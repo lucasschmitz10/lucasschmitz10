@@ -1,6 +1,6 @@
 🙋🏻‍♂️Ola, Eu sou  lucas Schmitz. 
 
-💻 Estudande de Análise e Desevolvimento de Sistemas|Ulbra
+💻 Estudante de Análise e Desevolvimento de Sistemas|Ulbra
 
 <div align="center">
   <a href="https://github.com/lucasschmitz10">
